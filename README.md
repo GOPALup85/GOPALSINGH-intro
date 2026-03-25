@@ -1,4 +1,10 @@
-# GOPALSINGH-intro
+
+https://github.com/user-attachments/assets/402a8d23-9eb5-42d8-94cb-adcd1df0986f
+# GOPALSINGH-intro 
+
+VIDEO: Uploading intro video (1).mp4…
+
+
 This is my self introduction profile
 
 # Hi 👋, I'm Gopal Singh
